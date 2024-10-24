@@ -20,7 +20,7 @@ On **Day-4**, One team will keep working on **C4 & C5** shear wall portion, and 
 <img width="265" alt="image" src="https://github.com/user-attachments/assets/be11542d-86c3-41a0-bae8-92315394a5ac">
 
 On **Day-5**, all three team will focus on completion of staircase work i.e. **C13 & C14** and pending work of **C4 & C5**.
-**
+
 <img width="259" alt="image" src="https://github.com/user-attachments/assets/72ef9ff8-a824-4740-9c7f-07504e0d3a3c">
 
 In this way-try to utilize the work front and follow the above sequence to complete the activities within norms.
